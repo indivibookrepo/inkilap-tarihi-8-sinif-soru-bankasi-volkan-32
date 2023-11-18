@@ -1,0 +1,1 @@
+# inkilap-tarihi-8-sinif-soru-bankasi-volkan-32
